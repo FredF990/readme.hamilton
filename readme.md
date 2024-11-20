@@ -29,3 +29,5 @@ Ancien savant fou en réonrientation professionnelle.
 - La bonne entente.
  
 ![Hamster dans sa roue](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExempnYWV1MzNscWVxZnJ2dzQ5NmhncWFtcnoyMTlxMG1pMHQxanE4cyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/yaUG0KDAcIcWA/giphy.webp)
+
+![hello Fred](https://www.google.com/url?sa=i&url=https%3A%2F%2Fgifdb.com%2Fhello-there&psig=AOvVaw2tqll6-TxcaX5WfmUfemjK&ust=1732201602304000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCKDvsomY64kDFQAAAAAdAAAAABAE)
